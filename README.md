@@ -15,7 +15,7 @@ https://x.com/Sickarikadiz/status/2118878174662869254?a=mFIJz5jPPqJQu39tqSY&s=20
 
 OH MY FUCKING GOD OHH MY FUUCKING GODD im gona throw up
 
-###### grown ass adult crying over a rickorty edit on twitter are we ok?
+###### grown ass adult crying over a rickorty edit btw
 
 </details>
 
