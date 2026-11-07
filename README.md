@@ -11,7 +11,7 @@
 
 <summary> </summary>
 
-https://x.com/Sickarikadiz/status/2118878174662869254?a=mFIJz5jPPqJQu39tqSY&s=20
+https://x.com/Sickarikadiz/status/2118878174662869254
 
 OH MY FUCKING GOD OHH MY FUUCKING GODD im gona throw up
 
