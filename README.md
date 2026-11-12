@@ -1,7 +1,7 @@
 
 <div align=center>
 
-### IWECare, personal stuff going on.
+### IWECare
 
 unlikely to be super responsive right now, sorry. 
 
