@@ -14,7 +14,7 @@ unlikely to be super responsive right now, sorry.
 
 
 
-[pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://evilevoprime.straw.page/) wip
+[pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://evilevoprime.straw.page/)
 
 
 
